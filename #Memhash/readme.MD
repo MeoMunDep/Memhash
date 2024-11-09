@@ -6,7 +6,7 @@
 - Group: [Link](t.me/KeoAirDropFreeNe)
 - Channel: [Link](t.me/KeoAirDropFreeNee)
 
-> Help me with your referral [Link](t.me/memhash_bot/start?startapp=7KNJEW)
+> Help me with your referral [Link](https://t.me/memhash_bot/start?startapp=7KNJEW)
 
 ## 🚀 Getting Started
 
